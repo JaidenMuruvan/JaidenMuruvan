@@ -9,7 +9,7 @@
 
 - 👯 I’m looking to collaborate on [Fortnite](https://jaidenmuruvan.github.io/DIGA3009A_JaidenMuruvan/)
 
-- 📫 How to reach me **muruvanjaiden@gmail.com**
+- 📫 How to reach me **jaidenjmuruvan@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
